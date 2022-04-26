@@ -2,4 +2,4 @@
 - 👀 I’m interested in D&D, C#, C and Game Development.
 - 🌱 I’m currently learning C & C#.
 - 💞️ I’m looking to collaborate on nothing really.
-- 📫 Don't reach me.
+- 📫 Um... don't reach me plzzzzzz.
